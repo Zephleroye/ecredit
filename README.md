@@ -1,1 +1,1 @@
-Plateforme de micro-finance 
+Plateforme de micro-finance en ligne
